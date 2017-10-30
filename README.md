@@ -15,4 +15,4 @@ Bot akan otomatis undang jika ada :
 - Korban yang kena kick oleh member lain
 
 
-Created by Farzain - zFz
+Bingung? Mau tanya soal pembuatan nya? Add >>line:://ti/p/~daechi_.
